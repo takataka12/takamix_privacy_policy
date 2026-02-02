@@ -1,0 +1,1 @@
+# takamix_privacy_policy
